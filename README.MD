@@ -1,1 +1,1 @@
-O curso está ok
+O curso está bem ok
